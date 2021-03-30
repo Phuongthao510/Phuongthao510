@@ -1,0 +1,2 @@
+- Hi! I'm Thảo Phương NămSwag - A sunshine girl
+- Welcome to my code
