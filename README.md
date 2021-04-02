@@ -1,2 +1,1 @@
-- Hi! I'm Thảo Phương NămSwag - A sunshine girl
-- Welcome to my code
+My website about Selling Comestics
